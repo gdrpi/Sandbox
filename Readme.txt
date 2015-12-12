@@ -1,2 +1,2 @@
 Read this, nerds!
-It pertains to you.
+It pertains to you all.
